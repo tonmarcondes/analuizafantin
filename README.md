@@ -1,4 +1,4 @@
-## ✨ Olá,  eu sou Ana Luiza Fantin!
+## ✨ Olá,  eu sou Ana Luiza Fantin !
 
 - 📚      Graduada em Análise e Desenvolvimento de Sistemas e violonista.
 
